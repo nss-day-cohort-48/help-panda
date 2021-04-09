@@ -1,4 +1,4 @@
-🐼 
+Hi, I am Pat the Panda! I am your peer panda leader! Ask me help! 🐼 
 
 ```
             __..                     ..__              
